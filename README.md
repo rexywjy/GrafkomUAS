@@ -4,10 +4,11 @@ Kelompok 32
 
 C14210011 - Rexy Wijaya Singo Putro
 
-C1421 -
+C14210049 - Samantha Emmanuella Chen
 
-C1421 -
+C14210115 - Keysha Angie Jayadi 
 
 Link Laporan:
+https://docs.google.com/document/d/135fGlTLZ7bZoDrkjLgox3ksEU6gqfZ3WET5AamaCpus/edit
 
 Link Youtube:
